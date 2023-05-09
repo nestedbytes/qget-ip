@@ -1,5 +1,5 @@
 # WARNING
-DO NOT USE THIS FOR ILEGAL PURPOSES. USE THIS TO EDUCATE YOUR SELF HOW LEAKING IP(S) IS NOT SAFE BUT DON'T USE IT AGAINST ANYONE WITHOUT EXPLICIT PERMISIONS 
+umm actaully don't use this to grab ip it just for educational purposes 🤓 🤓
 # NEWS
 I do not update this
 # qget-ip
